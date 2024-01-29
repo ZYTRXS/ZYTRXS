@@ -1,5 +1,2 @@
-My main computer, phone & usb sticks have been taken for investigation. I got too silly online.
-
-You should expect:
-- [my website](https://nexzy.dev/) being down for the time being
-- inactivity
+[website](https://nexzy.dev/)
+![ek3+mx](https://github.com/snvyv/snvyv/assets/47720197/ecc5603d-dee2-4e4a-b335-36f2e7379820)
