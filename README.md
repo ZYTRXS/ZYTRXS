@@ -1,7 +1,3 @@
 [website](https://nexzy.dev/)
 
-Occupation: Professiobnal Game.
-you're from chapanese
-kf~~dfhagdss~~**"22**gd*ay*ygw
-This is 20
-Welcome, Zimob.🐠🐠🐠🐠🐠🐠🐠🐠🐠🐠🐠🐠🐠🐠🐠🐠🐠🐠🐠🐠🐠😎
+i haven't eaten any pedestrians in the last 6 years
