@@ -1,4 +1,4 @@
-[website](https://nexzy.dev/)
+[website](https://zytris.dev/)
 
 i haven't eaten any pedestrians in the last 6 years
 
